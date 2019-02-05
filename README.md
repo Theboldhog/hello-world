@@ -3,4 +3,4 @@
 
 That's my first test on Github
 
-I'm working on y laptop and i want to drint some lipton 
+I'm working on y laptop and i want to drinksome lipton 
